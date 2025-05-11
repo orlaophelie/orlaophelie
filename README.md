@@ -2,8 +2,7 @@
 - 👀 I’m interested in Basket ball & Coding
 - 🌱 I’m currently learning at World Mission high school
 - 💞️ I’m looking to collaborate on school projects
-- 📫 How to reach me just text me on my e-mail
-- 😄 Pronouns: ...
+- 📫 How to reach me? Just text me on my e-mail
 - ⚡ Fun fact: ..I once fell in a sauce pan full of beens and instead of crying,i ate them!!!!
 
 <!---
